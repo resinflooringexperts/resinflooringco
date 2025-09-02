@@ -34,7 +34,7 @@ https://resinflooringexperts.com/
 
 
 Accurate ASTM F2170 Concrete Moisture Testing – Protect Your Floors Before You Install
-When it comes to flooring, moisture in your concrete slab is one of the biggest causes of failure—especially for coatings like epoxy or adhesives used with LVP, tile, or carpet. At [Your Business Name], we offer specialized ASTM F2170 concrete moisture testing services that give you clear, dependable data on your slab’s internal conditions—before it’s too late.
+When it comes to flooring, moisture in your concrete slab is one of the biggest causes of failure—especially for coatings like epoxy or adhesives used with LVP, tile, or carpet. At [Resin Flooring Experts, LLC], we offer specialized ASTM F2170 concrete moisture testing services that give you clear, dependable data on your slab’s internal conditions—before it’s too late.
 What is ASTM F2170 Testing?
 ASTM F2170 is the gold standard for relative humidity (RH) testing inside concrete slabs. Unlike outdated surface tests like calcium chloride, this method requires drilling into the slab and inserting probes 40% deep. After 24 hours of conditioning, these probes provide an accurate reading of the slab’s internal moisture levels, helping you determine if the surface is ready for flooring—or if moisture mitigation is needed.
 Who We Work With:
